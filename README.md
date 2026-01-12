@@ -1,0 +1,1 @@
+# ghanatouristattraction.om
